@@ -1,2 +1,0 @@
-# qmachineintelligence.com
-qmachineintelligence.com
